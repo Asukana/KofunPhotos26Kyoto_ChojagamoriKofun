@@ -1,0 +1,2 @@
+# KofunPhotos26Kyoto_ChojagamoriKofun
+長者森古墳
